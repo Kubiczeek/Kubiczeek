@@ -9,3 +9,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: use my discord `kubiczeek`
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like buses
+  
+Want to see my projects? Make sure to visit https://jakubjakubek.cz/
